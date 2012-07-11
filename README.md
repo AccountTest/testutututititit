@@ -1,1 +1,1 @@
-<b>READE</b>
+<b>READE.</b>
